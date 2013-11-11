@@ -1,4 +1,5 @@
 History
 =======
 
-Winners, reviews, and everything else you might need to know.
+*Judging*:
+The winner is whoever bribes lol768 the most.
